@@ -2,10 +2,10 @@
 
 **Disawar satta king Shri Ganesh satta king Black satta king Ghaziabad satta king Delhi bajar satta king**
 
-## - यहाँ देखें Fix👉👉 [सट्टा किंग फिक्स चार्ट ](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 
+## - यहाँ देखें Fix👉👉 [सट्टा किंग फिक्स चार्ट ](https://kalyan-chart-fix.hindipanti.in/satta-king-dpboss-satta-matka-result-updates-satta-matka-king-chart-29-july/) 
 ---
 
-##- यहाँ देखें Fix👉👉 [सट्टा किंग रिजल्ट लाइव ](https://www.google.com/search?q=hindipanti+in+kalyan+fix) 
+##- यहाँ देखें Fix👉👉 [सट्टा किंग रिजल्ट लाइव ](https://kalyan-chart-fix.hindipanti.in/satta-king-dpboss-satta-matka-result-updates-satta-matka-king-chart-29-july/) 
 ---
 
 Delhi satta king Satta king 786 Satta king disawar Shri Ganesh satta king सट्टा किंग दिसावर
